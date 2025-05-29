@@ -14,7 +14,8 @@ I am currently learning applications of AI in the real world and learning about 
 - Problem and Thinking Skills
 - Presentation Skills
 - Able to educate multiple ages
-
+- Able to use a computer quickly and efficiently
+- Engage in conversations that are meaningful and beneficial 
 
 You are able to contact me by email and phone number
 
