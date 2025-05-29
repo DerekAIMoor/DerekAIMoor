@@ -9,7 +9,7 @@ I am interested in A.I, aerospace and science.
 I am currently learning applications of AI in the real world and learning about the mechanics, science, and equipment of a aeroplane.
 
 
-**My skills are: **
+**My skills are:**
 - Quick learning and quick adaptability 
 - Problem and Thinking Skills
 - Presentation Skills
@@ -18,5 +18,6 @@ I am currently learning applications of AI in the real world and learning about 
 
 You are able to contact me by email and phone number
 
-**Phone:**954-395-5667
-**Email:**derekjasonasdigg@gmail.com
+**Phone:** 954-395-5667
+
+**Email:** derekjasonasdigg@gmail.com
